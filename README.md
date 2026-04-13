@@ -7,7 +7,11 @@
 </div>
 
 <div align="center">
+<img width="652" height="421" alt="Image" src="https://github.com/user-attachments/assets/ef9b6195-53f2-445f-8860-13cad8f5a53c" />
+</div>
+
+<div align="center">
  
-   (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡ → ilmgf
+   (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡ → they're so me n my wife
 
 </div>
