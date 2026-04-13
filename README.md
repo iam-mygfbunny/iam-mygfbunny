@@ -1,16 +1,13 @@
-## Hi there 👋
 
-<!--
-**iam-mygfbunny/iam-mygfbunny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ [paycheck one-sided fic!(wip chapter2)](https://archiveofourown.org/works/78469926) ෆ [ata‹3](https://putrii.atabook.org/)
+
+</div>
+
+<div align="center">
+ 
+   (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡ → ilmgf
+
+</div>
