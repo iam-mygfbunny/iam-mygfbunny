@@ -15,3 +15,5 @@
    (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡ → they're so me n my wife
 
 </div>
+
+[to mars, pls read ty] (https://docs.google.com/document/d/1sbFHd2dO4Gd7_YmMWtMcJ9KWK0df-kd-6bGF5zogeJU/edit?usp=drivesdk)
