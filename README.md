@@ -16,3 +16,8 @@
 
 </div>
 
+<div align="center">
+ 
+[read for awareness.](https://docs.google.com/document/d/1_kzvz265yiw-EJNtsKB2u4j6xG4kVPYGV4QUPA4UTMo/edit?usp=drivesdk)
+
+</div>
