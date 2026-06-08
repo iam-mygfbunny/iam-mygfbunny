@@ -15,3 +15,9 @@
    (⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡ → they're so me n my wife
 
 </div>
+
+<div align="center">
+ 
+[hi.](https://docs.google.com/document/d/1_kzvz265yiw-EJNtsKB2u4j6xG4kVPYGV4QUPA4UTMo/edit?usp=drivesdk)
+
+</div>
