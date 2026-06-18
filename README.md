@@ -17,12 +17,11 @@
 </div>
 
 <div align="center">
- “ my star.. ”
-
+ “ ɱყ ʂƚαɾ .. ”
 </div>
 
 <div align="center">
- “ my night.. ”
+ “ ʍʏ ռɨɢɦȶ.. ”
 </div>
 
 <div align="center">
