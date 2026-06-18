@@ -2,7 +2,6 @@
 
 <div align="center">
 
- [paycheck one-sided fic!](https://archiveofourown.org/works/78469926) ෆ [ata‹3](https://putrii.atabook.org/)
- [Under construction]
+ <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/4058fea1-d990-4973-948c-a4668ee7ed1c" />
 
 </div>
